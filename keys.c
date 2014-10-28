@@ -1,0 +1,20 @@
+6531303535 infinitume86a
+6366356663 infinitum2d4b
+3663333833 infinutum6553
+3138961954 galaxia
+23055C3D1D infinitum7a5b74
+6137613938 infinitumfb4
+55FF632592 infinitum4A735F
+4038801874 infinitum3382
+9773BD5834 infinitum17E5E9
+97CE094DF5 infinitum89130E
+5619693464 infinitum3578
+DA44FF536B infinitumC55E2
+7D02A1B344 infinitumA4FB79
+2F398F223B infinitumAA6404
+598ACDCC51 infinitum - farmaciaDeLaSalud
+19321927 farmaciaHilda
+MARRANA 94:39:e5:6e:e1:d1
+JUERO 00:16:6f:c6:50:b7
+CelJue   90:c1:15:cc:43:a4
+
